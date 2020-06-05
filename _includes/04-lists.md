@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+I like:  
+- Learning
+- Food
+- Being with the people I love
